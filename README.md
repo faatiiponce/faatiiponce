@@ -1,4 +1,4 @@
-                                                               Bienvenido a mi perfil! 👋
+                                                    Bienvenido a mi perfil! 👋
 
  * Soy Full-Stack Developer, egresada del bootcamp de Henry👩🏻‍💻
 
