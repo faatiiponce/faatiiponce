@@ -14,7 +14,11 @@
   </a>
 </p>
   
-  
+ Si quieres saber más de mi, te invito a que me contactes!
+ 
+ Mail: faatii.ponce@gmail.com
+ 
+ WhatsApp: (+54)2664218945
   
   
 
