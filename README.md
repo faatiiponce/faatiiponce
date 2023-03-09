@@ -16,7 +16,7 @@
   
  Si quieres saber más de mi, te invito a que me contactes!
  
- Mail: faatii.ponce@gmail.com
+ Mail: poncefatimav@gmail.com
  
  WhatsApp: [(+54)2664218945](https://walink.co/b22c84)
   
